@@ -26,6 +26,6 @@ Ao final, compartilhe seu projeto nas redes sociais usando a hashtag **#LabDIONa
 ## 🔗 Link do Projeto
 
 Confira o projeto aqui!
-https://exemplo.com/projeto-lab-natty-or-not) ](https://drive.google.com/file/d/16My2BOc9GPdowGP0wCXp-bJPiQ2qbNMf/view?usp=sharing
+https://drive.google.com/file/d/16My2BOc9GPdowGP0wCXp-bJPiQ2qbNMf/view?usp=sharing
 
 Vamos juntos nessa jornada!
